@@ -12,4 +12,4 @@ Sie sehen die Früchte meiner Arbeit in:
 - Trivia Murder Party
 - Und in Form vieler kleiner Grafiken und Texte auf alle Party Packs verteilt!
 
-Mein Name ist Forseti und ich weiß nicht, für wen ich das hier überhaupt schreibe.
+Mein Name ist Maxi und ich weiß nicht, für wen ich das hier überhaupt schreibe.
