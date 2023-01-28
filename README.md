@@ -1,9 +1,15 @@
-- 👋 Hi, I’m @Forseti6676
-- 👀 I’m interested in learning new things, meeting new people and having fun!
-- 🌱 I’m currently probably learning for an history exam
-- Expert Tip: Just ignore me:)
+Hallo,
+Sie kennen mich vielleicht vom Team Gamechanger.
+Dort bin ich 🖊️Textübersetzer, 🖥️Grafiker, 👀Möchtegern-Animator, 📅Co-Organisator und professionelles Mädchen für alles.
 
-<!---
-Forseti6676/Forseti6676 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Sie sehen die Früchte meiner Arbeit in:
+- Das Rad von unglaublicher Größe
+- Weapons Drawn
+- Die Poll Mine
+- Die Teufel im Detail
+- Dictionarium
+- Patently Stupid
+- Trivia Murder Party
+- Und in Form vieler kleiner Grafiken und Texte auf alle Party Packs verteilt!
+
+Mein Name ist Forseti und ich weiß nicht, für wen ich das hier überhaupt schreibe.
