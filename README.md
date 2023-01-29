@@ -4,10 +4,10 @@ Dort bin ich 🖊️Textübersetzer, 🖥️Grafiker, 👀Möchtegern-Animator, 
 
 Sie sehen die Früchte meiner Arbeit in:
 - Das Rad von unglaublicher Größe
-- Weapons Drawn
-- Die Poll Mine
 - Die Teufel im Detail
+- Weapons Drawn
 - Dictionarium
+- Die Poll Mine
 - Patently Stupid
 - Trivia Murder Party
 - Und in Form vieler kleiner Grafiken und Texte auf alle Party Packs verteilt!
