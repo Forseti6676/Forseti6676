@@ -6,7 +6,10 @@ Sie sehen die Früchte meiner Arbeit in:
 - Das Rad von unglaublicher Größe
 - Die Teufel im Detail
 - Weapons Drawn
+- Bomb Corp.
+- Blather 'Round
 - Dictionarium
+- Drück den Knopf
 - Die Poll Mine
 - Patently Stupid
 - Trivia Murder Party
