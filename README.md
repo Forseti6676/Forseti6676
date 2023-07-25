@@ -5,11 +5,13 @@ Dort bin ich 🖊️Textübersetzer, 🖥️Grafiker, 👀Möchtegern-Animator, 
 Sie sehen die Früchte meiner Arbeit in:
 - Das Rad von unglaublicher Größe
 - Die Teufel im Detail
+- You Don't Know Jack: Full Stream
 - Weapons Drawn
 - Bomb Corp.
+- Drück den Knopf
 - Blather 'Round
 - Dictionarium
-- Drück den Knopf
+- Guesspionage
 - Die Poll Mine
 - Patently Stupid
 - Trivia Murder Party
