@@ -15,7 +15,7 @@ Sie sehen die Früchte meiner Arbeit in:
 - Die Poll Mine
 - Patently Stupid
 - Trivia Murder Party
-- Bracketeering (Coming soon)
+- Bracketeering
 - Und in Form vieler kleiner Grafiken und Texte auf alle Party Packs verteilt!
 
 Mein Name ist Maxi und ich weiß nicht, für wen ich das hier überhaupt schreibe.
