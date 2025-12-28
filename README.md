@@ -4,18 +4,20 @@ Dort bin ich 🖊️Textübersetzer, 🖥️Grafiker, 👀Möchtegern-Animator, 
 
 Sie sehen die Früchte meiner Arbeit in:
 - Das Rad von unglaublicher Größe
+- Fibbage XL, Fibbage 2, Fibbage 3
 - Die Teufel im Detail
 - You Don't Know Jack: Full Stream
 - Weapons Drawn
 - Bomb Corp.
+- Legends of Trivia
 - Drück den Knopf
 - Blather 'Round
 - Dictionarium
+- Bracketeering
 - Guesspionage
 - Die Poll Mine
 - Patently Stupid
 - Trivia Murder Party
-- Bracketeering
 - Und in Form vieler kleiner Grafiken und Texte auf alle Party Packs verteilt!
 
 Mein Name ist Maxi und ich weiß nicht, für wen ich das hier überhaupt schreibe.
